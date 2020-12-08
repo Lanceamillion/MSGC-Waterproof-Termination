@@ -1,0 +1,1 @@
+These files were created in SolidWorks 2019-2020.
